@@ -1,4 +1,3 @@
-
 .by Andrei "Featuredutka" Shingirii
 
 This programm is developed for educational purpose only and cannot be used as a source of making income or be sold.
