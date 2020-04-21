@@ -3,8 +3,8 @@
 This programm is developed for educational purpose only and cannot be used as a source of making income or be sold.
 To tell me about issues / give feedback / donate / etc. you can contact me using one of the options below
 
-	> My work mail - shinyutx@yahoo.com
+	> My work mail - featuredboogie@gmail.com
 
-	> My personal VK profile - vk.com/datvsratiko
+	> My personal VK profile - vk.com/shinyutx
 
 Thank you for patience
